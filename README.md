@@ -5,4 +5,5 @@
 
 ## ☎️ **¡Contactame!**
 > Por el momento solo cuento con dos maneras de contacto
-> Discord / Servidor de discord
+> 
+> [Discord](https://discord.com/users/555938295721361429) / [Servidor de discord](https://discord.gg/YRVmFM4YYK)
